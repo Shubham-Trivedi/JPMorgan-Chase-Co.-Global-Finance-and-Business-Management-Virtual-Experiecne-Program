@@ -1,1 +1,1 @@
-# JPMorgan-Chase-Co.-Global-Fincance-and-Business-Management-Virtual-Experiecne-Program
+# JPMorgan-Chase-Co.-Global-Finance-and-Business-Management-Virtual-Experiecne-Program
